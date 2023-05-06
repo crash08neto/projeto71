@@ -1,0 +1,2 @@
+# projeto71
+qwertyuiopasdfghjklçzxcvbnm
